@@ -4,7 +4,7 @@ I am a student from ShangHai, and I like new things and want to try it😊.
 
 I am good at C++, and I will try more languages in the future.
 
-I’m currently learning programing, hoping to join some internet company after graduate😁.
+I want to make games in the future! (2021/9/14 birthday)💻
 
 How to reach me: 375557328@qq.com📫.
 
@@ -12,7 +12,7 @@ How to reach me: 375557328@qq.com📫.
 
 I'm a heavy animation enthusiast, I hang out at BiliBili a lot.
 
-By the Way, I love Asoul so much recently, they are really angel! 她真的，我哭死😭
+I love Asoul so much recently, they are really angel! 她真的，我哭死😭
 
 ![](img/AVA.png)
 
