@@ -4,13 +4,9 @@ Hello，I‘m Bge.
 
 资深老宅宅，梦想是有一个梦想🤡
 
-How to reach me: 13407236419@163.com📫.
+邮箱: 13407236419@163.com📫.
 
-
-
-I'm a heavy animation enthusiast, I hang out at BiliBili a lot.
-
-I love Asoul so much recently, they are really angel! 她真的，我哭死😭
+如果你看Asoul，那我们就是兄弟。她真的，我哭死😭
 
 ![](img/AVA.png)
 
