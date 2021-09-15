@@ -1,12 +1,10 @@
 Hello，I‘m Bge.
 
-I am a student from ShangHai, and I like new things and want to try it😊.
+长期混迹于B站，出没于虚拟、番剧、钢琴音乐🙄
 
-I am good at C++, and I will try more languages in the future.
+资深老宅宅，梦想是有一个梦想🤡
 
-I want to make games in the future! (2021/9/14 birthday)💻
-
-How to reach me: 375557328@qq.com📫.
+How to reach me: 13407236419@163.com📫.
 
 
 
